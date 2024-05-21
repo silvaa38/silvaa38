@@ -9,4 +9,4 @@ Meu nome é Arthur Oliveira
 ### Contato
 arthurosilva9@gmail.com
 
-![] https://tenor.com/pt-BR/view/sukuna-jogo-jjk-jujutsu-kaisen-fire-gif-16776067268642080998
+![] (https://tenor.com/pt-BR/view/sukuna-jogo-jjk-jujutsu-kaisen-fire-gif-16776067268642080998)
