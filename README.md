@@ -9,4 +9,4 @@ Meu nome é Arthur Oliveira
 ### Contato
 arthurosilva9@gmail.com
 
-![] (https://media1.tenor.com/m/6NCQTCN4COYAAAAd/sukuna-jogo.gif)
+![](https://media1.tenor.com/m/6NCQTCN4COYAAAAd/sukuna-jogo.gif)
